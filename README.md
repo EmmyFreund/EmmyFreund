@@ -1,0 +1,2 @@
+- Hey, @EmmyFreund here !🌻
+- Studying Biochemistry @University of Bayreuth
